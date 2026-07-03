@@ -37,7 +37,7 @@ No momento, estou imerso em projetos de **automação**, **IoT** e **desenvolvim
 Você pode me encontrar em:
 
 * **LinkedIn:** https://www.linkedin.com/in/marco-caparra-b20b5a333/
-* **WhatsApp Profissional:** http://wa.me/5511945060948
+* **WhatsApp Profissional:** http://wa.me/5511930406226
 * **Email:** marcocaparra.profissional@gmail.com
 
 ---
